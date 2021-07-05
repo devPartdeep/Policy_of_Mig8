@@ -1,4 +1,7 @@
 Privacy Policy of Mig8
+
+
+
 Privacy Policy Last Modified on Jul 5, 2021
 
 We value your privacy. This privacy privacy policy is intended to clearly inform you of the following:
